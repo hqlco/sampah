@@ -28,3 +28,18 @@
 ![Screenshot 2023-06-01 103620](https://github.com/hqlco/sampah/assets/86828535/93bd9607-c367-445b-972c-6fe68c0f5c40)
 ![Screenshot 2023-06-01 103511](https://github.com/hqlco/sampah/assets/86828535/0deaac1d-98a2-476e-b058-e4bd90080782)
 
+
+
+
+
+-------------------------------------------------
+![1 FP sisop](https://github.com/hqlco/sampah/assets/86828535/da0bea5a-659f-4808-9af2-a5dfcec06483)
+![2 fp sisop](https://github.com/hqlco/sampah/assets/86828535/52cfc6ae-7c98-45bd-8066-4f45bbd24307)
+![3 fp sisop](https://github.com/hqlco/sampah/assets/86828535/ec319718-6b69-47d5-b0ca-c098a96d9ce7)
+![4 fp sisop](https://github.com/hqlco/sampah/assets/86828535/dc409a7d-e05a-46fb-b7f9-218c0c3e7dcf)
+![5 fp sisop](https://github.com/hqlco/sampah/assets/86828535/da53b1f0-9891-4dbc-b16f-73bab57fcd14)
+![6 fp sisop](https://github.com/hqlco/sampah/assets/86828535/d3568769-f86f-4053-aaca-654c6dbad412)
+
+
+
+
